@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @lucassantos, nice to meet you guys! It will be a honor to work with you all. I hope that we learn together and help each other.
+- 👀 I’m interested in technology and these stuffs, in general, all i can learn and reproduce later.
+- 🌱 I’m currently learning TI in UFBA.
+- 💞️ I’m looking to collaborate on work and projects.
+- 📫 You can find me on instagram https://www.instagram.com/lucas_santx19?igsh=emE1aW8xZTQ1MXgx or my personal e-mail: lucas1santosjf@gmail.com
+- ⚡ Fun fact: I'm shy at first, but after getting to know me, I'm very outgoing!
